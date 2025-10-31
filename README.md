@@ -1,0 +1,1 @@
+if I defenstrate myself, it was 10000% because of NVIDIA.... I pray that they have to pay over 1B to my family <img width="512" height="512" alt="66b3eb4819f48592fa6efc03_41" src="https://github.com/user-attachments/assets/0be3ad34-3a38-46a1-a8f7-b3341c3fd387" />
